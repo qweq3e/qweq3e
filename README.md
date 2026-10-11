@@ -1,4 +1,4 @@
-${\color{#f5e9e2} why \space so \space serious \space ? \space ?}$
+${\color{#2c365e} why \space so \space serious \space ? \space ?}$
 <!--
 **qweq3e/qweq3e** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
