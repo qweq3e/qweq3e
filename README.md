@@ -1,6 +1,12 @@
 <div align="center"> 
   
-  ${\color{#2c365e} why \space so \space serious \space ? \space ?}$ 
+  ${\color{#e79faf} take \space my \space flower \space NOW \space !!}$ 
+
+  <div align="center"> 
+
+<img width="150" height="180" alt="cat-with-flowers" src="https://github.com/user-attachments/assets/d946375d-d5f2-4920-bc24-09a4b945fbda" />
+
+ 
 <!--
 **qweq3e/qweq3e** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
