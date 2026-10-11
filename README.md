@@ -1,5 +1,4 @@
-## wait guys I'm lazy i'll do it on phone...
-
+${\color{#BAI1200}even \space a \space devil \space may \space cry}$
 <!--
 **qweq3e/qweq3e** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
