@@ -22,5 +22,9 @@ ${\color{#9072B4} oomfs \space ;}$
    <div align="center"> 
 
 
+<img width="200" height="200" alt="be60d3b5aba83eefe34d7c75e5efdcbf" src="https://github.com/user-attachments/assets/52fe3fe8-b74b-4dfa-94df-8149b91ea5c5" />
+
+
+
 
 
