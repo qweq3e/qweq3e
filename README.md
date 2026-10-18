@@ -24,6 +24,8 @@ ${\color{#9072B4} oomfs \space ;}$
 
 <img width="200" height="200" alt="be60d3b5aba83eefe34d7c75e5efdcbf" src="https://github.com/user-attachments/assets/52fe3fe8-b74b-4dfa-94df-8149b91ea5c5" />
 
+Sebastian is not Ciel's father figure nor his romantical partner. At the end of the day, he is a demon who wants nothing but devour his soul.
+
 
 
 
