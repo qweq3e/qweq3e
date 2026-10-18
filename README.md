@@ -26,6 +26,7 @@ ${\color{#9072B4} oomfs \space ;}$
 
 Sebastian is not Ciel's father figure nor his romantical partner. At the end of the day, he is a demon who wants nothing but devour his soul.
 
+ But he is my husband by the way~
 
 
 
