@@ -28,6 +28,6 @@ Sorry some people don't know what that is~~
 
 - GAMES I LIKE / PLAYED / and still playing ( because i need people who also shares the same interests as me :( ))
 
-Elden Ring , Cineris Somnia, God of War, Resident Evil, The Village, Devil May Cry, WITCHER, Castlevania, BAYONETTA, Detroit, The walking dead, Cry of Fear, Silent Hill, Outlast, DOOM and Starcraft
+Elden Ring , Cineris Somnia, God of War, Resident Evil : The Village, Devil May Cry, WITCHER, Castlevania, BAYONETTA, Detroit, The walking dead, Cry of Fear, Silent Hill, Outlast, DOOM and Starcraft
 
 I don't want to make any website so don't mind my lazzines
