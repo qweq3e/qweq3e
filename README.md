@@ -30,4 +30,4 @@ Sorry some people don't know what that is~~
 
 Elden Ring , Cineris Somnia, God of War, Resident Evil : The Village, Devil May Cry, WITCHER, Castlevania, BAYONETTA, Detroit, The walking dead, Cry of Fear, Silent Hill, Outlast, DOOM and Starcraft
 
-I don't want to make any website so don't mind my lazzines
+I don't want to make any website so don't mind my lazzines ++++ Feel free to interact with me if you share the same interest as me or just simply want to be friends! I'm open to everyone and I take new opinions!
